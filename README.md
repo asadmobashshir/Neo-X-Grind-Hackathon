@@ -42,7 +42,7 @@ We are actively partnering with game developers to bring new and exciting skins 
 
 ## 📫 Contact Us
 
-- **Phone**: +91 6006907133  
-- **Email**: [noumanpm@gmail.com](mailto:noumanpm@gmail.com)  
-- **LinkedIn**: [Mujeeb Nouman](https://www.linkedin.com/in/mujeeb-nouman-31330a282/)
+- **Phone**: +91 9939104722 
+- **Email**: [mobashshirasad4863@gmail.com]
+- **LinkedIn**: https://www.linkedin.com/in/mobashshir-asad-2205242b2
 
